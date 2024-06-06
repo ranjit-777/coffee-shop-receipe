@@ -7,7 +7,7 @@
 - 1 cup sugar
 - 1 cup water
 - 1 cup of raw hazelnuts
-- 1 pinch of cinnamon
+- 1 pinch of raw cinnamon
 
 ## How to Make
 
