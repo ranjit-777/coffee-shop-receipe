@@ -4,7 +4,7 @@
 
 ## Ingredients
 
-- 1 cup sugar
+- 1 cup sugar cane
 - 1 cup water
 
 ## How to Make
